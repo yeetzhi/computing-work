@@ -10,3 +10,4 @@ and the jokes that he tells us too
 like the map reading ones? 
 and also talking about me being a scout
 
+any ideas guys?
