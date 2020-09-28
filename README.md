@@ -2,9 +2,8 @@
 i like to sleep 
 i like to eat
 i hate homework
-i play soul knight and brawl stars
-i am social 
-i am also anti social 
+i play brawl stars
+i am anti social 
 i have anger management issues 
 
 
